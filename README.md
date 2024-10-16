@@ -1,1 +1,1 @@
-# ™ or ® and © 2013-2024 an llc DBA deos.net w/ special permission from A NAME YOU CAN TRUST. All Rights Reserved. Made in USA
+# #!de : <www.deos.net/index.html> :: *this* : ™ or ® and © 2013-2024 an llc DBA deos.net w/ special permission from A NAME YOU CAN TRUST. All Rights Reserved. Made in USA ፨ $I/0 ። desantis.bv @ 1FEDQP2D5zmpRXRG5zQn7vYVs4JVHinjEv
